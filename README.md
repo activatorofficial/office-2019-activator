@@ -1,6 +1,6 @@
 # office-2019-activator
 
-[Office 2019 Activator TXT](https://activatorofficial.com/office-2019-activator-txt/): A Risky Choice for Users
+[Office 2019 Activator TXT](https://serialnumberfull.com/Full-Download-link/): A Risky Choice for Users
 If you're considering using an Office 2019 Activator TXT, it's important to understand the significant risks involved. While these tools might promise a quick and easy way to activate Microsoft Office 2019 without a license, they come with a host of problems that could put your system, data, and privacy at risk.
 
 The Dangers of Using Pirated Activators
